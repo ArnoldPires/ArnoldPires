@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **arnold.pires92@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/18G-MUNzP_msl3AKcFYt9nNS0rjDqzg-xCAYGFAlKOkE/edit](https://docs.google.com/document/d/18G-MUNzP_msl3AKcFYt9nNS0rjDqzg-xCAYGFAlKOkE/edit)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/18G-MUNzP_msl3AKcFYt9nNS0rjDqzg-xCAYGFAlKOkE/edit)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
